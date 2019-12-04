@@ -1,4 +1,4 @@
 #djayinski
-![boobah](https://yt3.ggpht.com/a/AGF-l79DS-U2NEpOqcqMkjE8OjyBXqmzJSkJzs8Ekg=s900-c-k-c0xffffffff-no-rj-mo)
-[Image found at](https://www.youtube.com/channel/UCZPZamiukEKZRV7Bt_cB9uQ)
+![boobah](https://secure.i.telegraph.co.uk/multimedia/archive/01147/arts-graphics-2004_1147957a.jpg)
+[Image found at](https://www.telegraph.co.uk/culture/tvandradio/3613576/The-mother-of-all-Boohbahs.html)
 
