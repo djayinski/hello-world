@@ -1,4 +1,4 @@
 #djayinski
-![boobah](https://www.google.com/url?sa=i&source=images&cd=&ved=2ahUKEwjEiYGjwpzmAhWym-AKHfU8DlwQjRx6BAgBEAQ&url=https%3A%2F%2Fwww.youtube.com%2Fchannel%2FUCZPZamiukEKZRV7Bt_cB9uQ&psig=AOvVaw0nLUcp2qcKoOGwWL_cng87&ust=1575566910198100)
+![boobah](<img src="https://yt3.ggpht.com/a/AGF-l79DS-U2NEpOqcqMkjE8OjyBXqmzJSkJzs8Ekg=s900-c-k-c0xffffffff-no-rj-mo" alt="Image result for boohbah"/>)
 [Image found at](https://www.youtube.com/channel/UCZPZamiukEKZRV7Bt_cB9uQ)
 
