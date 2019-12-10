@@ -1,4 +1,4 @@
 #djayinski
-![boobah](https://secure.i.telegraph.co.uk/multimedia/archive/01147/arts-graphics-2004_1147957a.jpg)
-[Image found at](https://www.telegraph.co.uk/culture/tvandradio/3613576/The-mother-of-all-Boohbahs.html)
+![ice cream](https://toppng.com/uploads/preview/waffle-cone-ice-cream-mint-chocolate-chip-ice-cream-in-a-waffle-cone-115630121165jgjf5hl6h.png)
+[Image found at](https://toppng.com/waffle-cone-ice-cream-mint-chocolate-chip-ice-cream-in-a-waffle-cone-PNG-free-PNG-Images_192337l)
 
